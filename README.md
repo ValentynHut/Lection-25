@@ -1,1 +1,7 @@
 # Lection-25
+sffdfgdfg
+dfgdfgdfghjf
+sdfghgmjgfdsa
+ergdfcvdfgdfgdfbfg
+dfgdfhfhdfgdfg
+dfgdfhghkldfnglf
